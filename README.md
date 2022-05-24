@@ -1,1 +1,4 @@
-# website-flow-
+
+L’histoire du Fromage:
+
+Selon la légende, la fabrication du fromage fut découverte lors du stockage et du transport du lait dans des panses de ruminants. En effet, c’est à la préhistoire et plus précisément à la période néolithique (fin du Vè – début du IVè millénaire avant .C) que les hommes développent le procédé de fabrication du fromage. Grâce aux présures naturellement présentes dans la panse animale utilisée, le lait se transforme en lait caillé puis en petit-lait. Une fois égoutté et séché le petit-lait devient un aliment facile à transporter et nourrissant : le fromage ! Le fromage serait une des raisons de la domestication des ovins, des caprins et bien plus tard des bovins. Il est également reconnu comme monnaie, pour payer l’impôt ou comme valeur d’échange dans différents contrats.
